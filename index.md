@@ -26,4 +26,4 @@ title: Welcome
 #### HAHAHA
 ##### hahaha
 ###### haha
-~hah.~
+<sub>hah.</sub>
