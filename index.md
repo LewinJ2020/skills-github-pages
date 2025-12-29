@@ -18,7 +18,7 @@ title: Welcome
 
 ***
 
-![Please don't forget me.](https://scifiwright.com/wp-content/uploads/2025/03/Frieren-6.webp)
+![Please don't forget me.](https://blackcompany.com.br/wp-content/uploads/2025/11/frieren.jpg)
 
 # HAHAHAHAHAHA
 ## HAHAHAHAHA
